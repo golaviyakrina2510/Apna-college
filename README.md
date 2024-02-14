@@ -1,3 +1,3 @@
 # Apna-college
 <br>
-Author Krina Golaviya
+Author--Krina Golaviya
